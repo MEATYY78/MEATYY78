@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![1](https://github.com/user-attachments/assets/d7cf1894-a6aa-4e5c-bd3b-a89a9d2655e2)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![1](https://github.com/user-attachments/assets/d7cf1894-a6aa-4e5c-bd3b-a89a9d2655e2)
 
 # 🥩 My name is MEATY / DIGITAL / FLESH! 🥩
 ![KakaoTalk_Photo_2025-01-20-16-30-39 002](https://github.com/user-attachments/assets/1e03404c-fe4c-44d1-9c9d-b712d8997081) ![KakaoTalk_Photo_2025-01-20-16-30-39 002](https://github.com/user-attachments/assets/1e03404c-fe4c-44d1-9c9d-b712d8997081)
