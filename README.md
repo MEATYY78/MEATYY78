@@ -36,7 +36,7 @@ About DW) Not completely leaving, but I decided to stay away from Dandy's world 
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tehe](https://github.com/user-attachments/assets/6e1dfb7d-b751-4930-953c-393603688f7d)
+![tehe](https://github.com/user-attachments/assets/6e1dfb7d-b751-4930-953c-393603688f7d)
 
 me if you care
 
