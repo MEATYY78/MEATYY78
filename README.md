@@ -1,9 +1,11 @@
 ![1](https://github.com/user-attachments/assets/d7cf1894-a6aa-4e5c-bd3b-a89a9d2655e2)
 
-# 🥩 My name is MEATY / DIGITAL / FLESH 🥩
+# 🥩 My name is MEATY / DIGITAL / FLESH! 🥩
 ![KakaoTalk_Photo_2025-01-20-16-30-39 002](https://github.com/user-attachments/assets/1e03404c-fe4c-44d1-9c9d-b712d8997081) ![KakaoTalk_Photo_2025-01-20-16-30-39 002](https://github.com/user-attachments/assets/1e03404c-fe4c-44d1-9c9d-b712d8997081)
 
-• C+H & Whisp to INT
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) Basic:
+
+• C+H & Whisp to INT
 
 • Inspo is okay but DO NOT!! copy me or get heavily inspo.
 
@@ -11,7 +13,7 @@
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-@ INTEREST || Regretevator / Other games from Theaxolotlsun / TADC / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / ENA / DHMIS / Dandy's world / The walten files / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Regretevator / Other games from Theaxolotlsun / TADC / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / ENA / DHMIS / Dandy's world / The walten files / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc
 
 • Notes: PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS, YOU'RE VERY VERY WELCOMED!!!
 
@@ -19,14 +21,13 @@ Not completely leaving, but I decided to stay away from Dandy's world for a whil
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-@ INT || Basically anyone / People with the same interest with me.
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INT || Basically anyone / People with the same interest with me.
 
-@ DNI || No dnis, but will block you if I find you uncomfortable.
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis, but will block you if I find you uncomfortable.
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-![KakaoTalk_Photo_2025-01-20-16-30-42 022](https://github.com/user-attachments/assets/8629d5bd-59cf-45dc-986d-cd4694216202) ![KakaoTalk_Photo_2025-01-20-16-30-39 003](https://github.com/user-attachments/assets/c4e91e29-4aae-40dc-b717-f72123d4a4cb) ![KakaoTalk_Photo_2025-01-20-16-30-42 021](https://github.com/user-attachments/assets/407d2d3e-aa61-46bb-856b-bfcff4043ddf) ![KakaoTalk_Photo_2025-01-20-16-30-41 019](https://github.com/user-attachments/assets/59636afd-6ae1-4903-87ac-ea2e0fae4fcc) ![tumblr_0d5f5eddccaa8586d5f074b6afb0201f_7df19f0f_100](https://github.com/user-attachments/assets/1203cc1b-0fd6-4e0e-ae87-e4a08142e14c) ![tumblr_4b0d4214f03d759a7a8142f88dc32adf_dc691272_100](https://github.com/user-attachments/assets/55d13887-0c97-4cfc-b6bf-5fcf7fbfeb18) ![tumblr_4731f730bcaf6242243e2f991e4a32b6_8577af4f_100](https://github.com/user-attachments/assets/192ed94d-4422-4f53-bd4c-6d6278bb330c) ![tumblr_c47277ee3ab75bd071349236695aa118_84ee4b21_100](https://github.com/user-attachments/assets/44083eec-eb00-4bab-932c-fe1bea146a56) ![tumblr_540a1795b1690d2da1e17108d87b350f_283ce554_100](https://github.com/user-attachments/assets/3aee7697-4608-49f5-861f-b8175a366664) ![nekojiru_stamp_01_by_tapu_lele-daqtn5u](https://github.com/user-attachments/assets/33ea79df-3268-427d-9bf6-8202e97f45d2) ![i_love_my_computer_stamp_by_taryn_syndrome](https://github.com/user-attachments/assets/07a1b2a0-7f25-438d-bddd-4432b0459885) ![99e58354](https://github.com/user-attachments/assets/ee057ed9-eb5c-4763-9c09-c4e9e239c121) ![104](https://github.com/user-attachments/assets/e8f1db82-498b-487a-a888-6ca573e02550) ![4d1ec863](https://github.com/user-attachments/assets/28c6ccdd-5790-4c83-996f-14299d88fa63) ![2](https://github.com/user-attachments/assets/9c90aebc-221b-464a-8e5e-dcaefb034517) ![i13](https://github.com/user-attachments/assets/b7e290d4-b392-4566-a254-405739178483) ![1](https://github.com/user-attachments/assets/8760fe08-5314-4950-b49e-cbbbba158bde)
-
+![KakaoTalk_Photo_2025-01-20-16-30-42 022](https://github.com/user-attachments/assets/8629d5bd-59cf-45dc-986d-cd4694216202) ![KakaoTalk_Photo_2025-01-20-16-30-39 003](https://github.com/user-attachments/assets/c4e91e29-4aae-40dc-b717-f72123d4a4cb) ![KakaoTalk_Photo_2025-01-20-16-30-42 021](https://github.com/user-attachments/assets/407d2d3e-aa61-46bb-856b-bfcff4043ddf) ![KakaoTalk_Photo_2025-01-20-16-30-41 019](https://github.com/user-attachments/assets/59636afd-6ae1-4903-87ac-ea2e0fae4fcc) ![tumblr_0d5f5eddccaa8586d5f074b6afb0201f_7df19f0f_100](https://github.com/user-attachments/assets/1203cc1b-0fd6-4e0e-ae87-e4a08142e14c) ![tumblr_4b0d4214f03d759a7a8142f88dc32adf_dc691272_100](https://github.com/user-attachments/assets/55d13887-0c97-4cfc-b6bf-5fcf7fbfeb18) ![tumblr_4731f730bcaf6242243e2f991e4a32b6_8577af4f_100](https://github.com/user-attachments/assets/192ed94d-4422-4f53-bd4c-6d6278bb330c) ![tumblr_c47277ee3ab75bd071349236695aa118_84ee4b21_100](https://github.com/user-attachments/assets/44083eec-eb00-4bab-932c-fe1bea146a56) ![tumblr_5378782d238139cd392a1494ef183f4f_420475a5_100](https://github.com/user-attachments/assets/68b57053-6623-4d44-8dec-415066c2d300) ![tumblr_af1ea0a35f90ea1f2c78779c7aae9572_3b287ece_100](https://github.com/user-attachments/assets/9851e7c4-8fe7-4051-8733-eca7eee56f1c) ![tumblr_45cc25dc5a331fd7df891873d34c1e80_ca86d7a4_100](https://github.com/user-attachments/assets/3ea8d86a-6509-4a87-be08-64dcf95446e2) ![tumblr_540a1795b1690d2da1e17108d87b350f_283ce554_100](https://github.com/user-attachments/assets/3aee7697-4608-49f5-861f-b8175a366664) ![nekojiru_stamp_01_by_tapu_lele-daqtn5u](https://github.com/user-attachments/assets/33ea79df-3268-427d-9bf6-8202e97f45d2) ![i_love_my_computer_stamp_by_taryn_syndrome](https://github.com/user-attachments/assets/07a1b2a0-7f25-438d-bddd-4432b0459885) ![99e58354](https://github.com/user-attachments/assets/ee057ed9-eb5c-4763-9c09-c4e9e239c121) ![104](https://github.com/user-attachments/assets/e8f1db82-498b-487a-a888-6ca573e02550) ![4d1ec863](https://github.com/user-attachments/assets/28c6ccdd-5790-4c83-996f-14299d88fa63) ![2](https://github.com/user-attachments/assets/9c90aebc-221b-464a-8e5e-dcaefb034517) ![i13](https://github.com/user-attachments/assets/b7e290d4-b392-4566-a254-405739178483) ![1](https://github.com/user-attachments/assets/8760fe08-5314-4950-b49e-cbbbba158bde) ![tumblr_inline_p0x8glfCRf1uzqajc_500](https://github.com/user-attachments/assets/e9ec3712-299e-4170-8c11-573795ce269d) ![we0xo4](https://github.com/user-attachments/assets/4c733653-285d-4348-ad26-e5844382b1b4) ![smvzb7](https://github.com/user-attachments/assets/ed1ee3c1-5b77-4dec-b3bb-97cdee2c85e5) ![4hfqku](https://github.com/user-attachments/assets/a44d2084-6d6a-4c26-ba08-05fbf9c114a2) ![sehwlj](https://github.com/user-attachments/assets/4980add7-7a92-4339-b89b-023ce65d09d5) ![4ok0ys](https://github.com/user-attachments/assets/e8915f46-313a-40b7-91b3-8d5401929a20)
 
 ![KakaoTalk_Photo_2025-01-20-16-30-41 017](https://github.com/user-attachments/assets/b97b6ba1-287f-465b-af1f-ffd3139db4c3) ![KakaoTalk_Photo_2025-01-20-16-30-40 015](https://github.com/user-attachments/assets/1b43384c-5bc7-487d-9ded-a5dd681d779f)
 
