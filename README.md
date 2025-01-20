@@ -11,9 +11,9 @@
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-@ INTEREST || Regretevator / Other games from Theaxolotlsun / TADC / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / ENA / DHMIS / Dandy's world / The walten files / Aesthetics like liminal space, dreamcore, weirdcore etc
+@ INTEREST || Regretevator / Other games from Theaxolotlsun / TADC / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / ENA / DHMIS / Dandy's world / The walten files / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc
 
-• Notes: PLEASE INTERACT ME DAVE AND BAMBI AND DEMENSIONAL DEEP END & POPCORN EDITION FANS, YOU'RE VERY VERY WELCOMED!!!
+• Notes: PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS, YOU'RE VERY VERY WELCOMED!!!
 
 Not completely leaving, but I decided to stay away from Dandy's world for a while due to the horrible fandom & losing interest. Dandy's world fans on Ponytown are still always welcomed unless you're not one of THESE fans. ^^
 
