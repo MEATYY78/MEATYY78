@@ -31,6 +31,8 @@ Not completely leaving, but I decided to stay away from dw for a while due to th
 
 ![_](https://github.com/user-attachments/assets/29e15864-3006-42b3-a903-54f9cc897aca)
 
+![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
+
 ![tehe](https://github.com/user-attachments/assets/6e1dfb7d-b751-4930-953c-393603688f7d)
 
 me if you care
