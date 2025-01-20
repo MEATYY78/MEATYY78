@@ -17,7 +17,7 @@
 
 • Notes: PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS!!!! YOU'RE VERY VERY WELCOMED!!!!!!
 
-About DW) Not completely leaving, but I decided to stay away from Dandy's world for a while due to the horrible fandom & losing interest! Dandy's world fans on Ponytown are still always welcomed unless you're not one of THESE fans! ^^
+About DW) Not completely leaving, but I decided to stay away from Dandy's world for a while due to the horrible fandom & losing interest! Dandy's world fans on Ponytown are still always welcomed unless you're not one of THESE fans! ^^ (ESPECIALLY RAZZLE AND DAZZLE COSPLAYERS ALWAYS VERY WELCOMED)
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
