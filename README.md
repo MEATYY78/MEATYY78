@@ -5,19 +5,23 @@
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) Basic:
 
-• C+H & Whisp to INT!
+• Hello I am MEATY and you have no need to introduce yourself! (Get the reference please)
+
+• C+H & Whisper 2 interact!
 
 • Inspo is okay but of course DO NOT!! copy or get heavily inspo from any of my skin!
 
 • From non-English country, might be bad at english sometimes!
 
+• Yeah I don't do roleplay! I don't recommend interacting me for a rp!
+
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Regretevator / Other games from Theaxolotlsun / TADC / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / ENA / DHMIS / Dandy's world / The walten files / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc
 
-• Notes: PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS!!!! YOU'RE VERY VERY WELCOMED!!!!!!
+• Notes: PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS!!! YOU'RE VERY VERY WELCOMED!!!!!
 
-About DW) Not completely leaving, but I decided to stay away from Dandy's world for a while due to the horrible fandom & losing interest! Dandy's world fans on Ponytown are still always welcomed unless you're not one of THESE fans! ^^ (ESPECIALLY RAZZLE AND DAZZLE COSPLAYERS ALWAYS VERY WELCOMED)
+About DW) I'm currently staying away from Dandy's world due to the horrible fandom & losing interest! Dandy's world fans & DW related friends on Ponytown are still always welcomed unless you're not one of THESE horrible fans! (TALK TO ME RAZZLE AND DAZZLE FANS!)
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
