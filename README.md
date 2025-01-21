@@ -7,7 +7,7 @@
 
 • C+H & Whisp to INT!
 
-• Inspo is okay but of course DO NOT!! copy me or get heavily inspo!
+• Inspo is okay but of course DO NOT!! copy or get heavily inspo from any of my skin!
 
 • From non-English country, might be bad at english sometimes!
 
