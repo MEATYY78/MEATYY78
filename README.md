@@ -41,10 +41,10 @@ Yeah about Dandy's world! I'm currently staying away from Dandy's world due to t
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-Here goes some pictures of me in real life!
-
 ![tehe](https://github.com/user-attachments/assets/6e1dfb7d-b751-4930-953c-393603688f7d)
 
 ![PileOfBalls2](https://github.com/user-attachments/assets/fcb39f80-962d-499d-9a9f-0d63863e06ca)
+
+me in real life if you care!
 
 
