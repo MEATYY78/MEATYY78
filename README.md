@@ -47,6 +47,6 @@ me in real life if you care!
 
 
 https://youtu.be/GCt0lZ_1JTQ?si=sZ9zCsctXzb3jZWb
-yeah by the way this song is absolute banger go listen to this
+yeah by the way this song is an absolute banger go listen to this
 
 
