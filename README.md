@@ -9,7 +9,7 @@
 
 • C+H & Whisper 2 interact!
 
-• Inspo is okay but of course DO NOT!! copy or get heavily inspo from any of my skin!
+• Inspo is okay but of course DO NOT!! copy or get HEAVILY inspo from any of my skin!
 
 • From non-English country, might be bad at english sometimes!
 
