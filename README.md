@@ -27,9 +27,9 @@ Yeah about Dandy's world! I'm currently staying away from Dandy's world due to t
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INT || Basically anyone!! / People with the same interest with me!!
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INT || Basically anyone! / People with the same interest with me!
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis!! But will block you if I find you uncomfortable!!
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis! But will block you if I find you uncomfortable!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
@@ -41,10 +41,10 @@ Yeah about Dandy's world! I'm currently staying away from Dandy's world due to t
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
+Here goes some pictures of me in real life!
+
 ![tehe](https://github.com/user-attachments/assets/6e1dfb7d-b751-4930-953c-393603688f7d)
 
 ![PileOfBalls2](https://github.com/user-attachments/assets/fcb39f80-962d-499d-9a9f-0d63863e06ca)
-
-me if you care
 
 
