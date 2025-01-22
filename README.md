@@ -23,7 +23,7 @@ PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS!
 
 I HAVE NO MOUTH AND I MUST SCREAM FANS TOO!!! TALK TO ME!!!
 
-Yeah about Dandy's world! I'm currently staying away from Dandy's world due to the horrible fandom & losing interest! Dandy's world fans & DW related friends on Ponytown are still always welcomed unless you're not one of THESE horrible fans! (TALK TO ME RAZZLE AND DAZZLE FANS!)
+Yeah about Dandy's world! I'm currently staying away from Dandy's world due to the horrible fandom & losing interest! But Dandy's world fans & DW related friends on Ponytown are still always welcomed unless you're not one of THESE horrible fans! (TALK TO ME RAZZLE AND DAZZLE FANS!)
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
