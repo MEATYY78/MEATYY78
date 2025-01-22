@@ -3,7 +3,7 @@
 # 🥩 MY NAME IS MEATY / DIGITAL / FLESH! 🥩
 ![KakaoTalk_Photo_2025-01-20-16-30-39 002](https://github.com/user-attachments/assets/1e03404c-fe4c-44d1-9c9d-b712d8997081) ![KakaoTalk_Photo_2025-01-20-16-30-39 002](https://github.com/user-attachments/assets/1e03404c-fe4c-44d1-9c9d-b712d8997081)
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) Basic:
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) BASIC ||
 
 • Hello I am MEATY and you have no need to introduce yourself! (Get the reference please)
 
