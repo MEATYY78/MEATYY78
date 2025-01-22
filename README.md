@@ -15,8 +15,6 @@
 
 • Yeah I don't do roleplay! I don't recommend interacting me for a rp!
 
-• Oh I kin SlimYim so much. He is literally so me.
-
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Regretevator / Other games from Theaxolotlsun / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / IHNMAIMS / TADC / ENA / DHMIS / Dandy's world / The walten files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc
