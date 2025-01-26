@@ -45,8 +45,3 @@ Yeah about Dandy's world! Now I completely left Dandy's world fandom but I still
 
 me in real life if you care!
 
-
-https://youtu.be/GCt0lZ_1JTQ?si=sZ9zCsctXzb3jZWb
-yeah by the way this song is an absolute banger go listen to this
-
-
