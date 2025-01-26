@@ -23,7 +23,7 @@ PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS!
 
 I HAVE NO MOUTH AND I MUST SCREAM FANS TOO!!! TALK TO ME!!!
 
-Yeah about Dandy's world! Now I completely left Dandy's world fandom but I still love RnD! Talk to me RnD fans!
+Yeah about Dandy's world! Now I completely left Dandy's world fandom and I honestly hate DW now, but I still love RnD and DW related friends are still able to talk to me!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
