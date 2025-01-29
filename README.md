@@ -17,13 +17,9 @@
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Regretevator / Other games from Theaxolotlsun / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The walten files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Sanrio / San-x / Chiikawa / Neon Genesis Evanglion
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Forsaken / Regretevator / Other games from Theaxolotlsun / Dave and Bambi / Dave and Bambi mods like Dimensional Deep End, Popcorn edition etc / Various unpopular games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The walten files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Sanrio / San-x / Chiikawa / Neon Genesis Evanglion
 
-PLEASE INTERACT ME DAVE AND BAMBI & DEMENSIONAL DEEP END & POPCORN EDITION FANS!!! YOU'RE VERY VERY WELCOMED!!!!!
-
-I HAVE NO MOUTH AND I MUST SCREAM FANS TOO!!! TALK TO ME!!!
-
-Yeah about Dandy's world! Now I completely left Dandy's world fandom and I honestly hate DW now, but I still love RnD and DW related friends are still able to talk to me!
+Forsaken / DnB / IHNMAIMS fans are very very welcomed!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
