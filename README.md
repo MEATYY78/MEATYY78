@@ -21,7 +21,7 @@
 
 • Notes: Forsaken / DDE / IHNMAIMS fans are very very welcomed!
 
-I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself, but I still don't mind interacting with dw fans unless they're not being weird or horrible! I might hate dw now but I still heart RnD!
+I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself, but I still don't mind interacting with dw fans unless they're being weird or horrible! I might hate dw now but I still heart RnD!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
