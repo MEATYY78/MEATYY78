@@ -40,5 +40,5 @@
 
 ![PileOfBalls2](https://github.com/user-attachments/assets/fcb39f80-962d-499d-9a9f-0d63863e06ca)
 
-me in real life if you care!
+me if you care
 
