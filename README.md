@@ -11,13 +11,13 @@
 
 • Inspo is okay and you don't need to get permission for it but DO NOT!! copy or get HEAVILY inspo from any of my skin!
 
-• A MINOR. So don't be weird with me!
+• A MINOR. Don't be weird with me!
 
 • Not an English speaker, might be bad at English sometimes!
 
 • Yeah I don't do roleplay! I don't recommend interacting me for a rp!
 
-• Will block you permanently if I find you very much uncomfortable or annoying. But I barely blocks someone, so I don't think you have to worry about it!
+• Will block you permanently if I find you very much uncomfortable or annoying. But I barely blocks someone, so you have to worry about it!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
@@ -25,7 +25,7 @@
 
 • Notes: Forsaken / DDE / IHNMAIMS fans are very very welcomed, green name me!
 
-Do not force me to like your ship(s) please!
+I'm fine with ships. But do not force me to like your ship(s)!
 
 I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still won't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about Dandy's world when you're not my friend but a stranger, thank you!
 
