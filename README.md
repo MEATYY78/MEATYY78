@@ -21,11 +21,11 @@
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Forsaken / Regretevator / Other games from Theaxolotlsun / Dave and Bambi and DnB fan mods / Dimensional Deep End / Various unpopular, underrated games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The walten files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Chiikawa / Neon Genesis Evanglion / Bugbo / Poppy Playtime
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Forsaken / Regretevator / Other games from Theaxolotlsun / Dave and Bambi and DnB fan mods / Dimensional Deep End / Various unpopular, underrated games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The Walten Files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Chiikawa / Bugbo / Poppy Playtime / Endacopia
 
 • Notes: Forsaken / DDE / IHNMAIMS fans are very very welcomed, green name me!
 
-Forsaken ships do not interact unless it's some CANON ships like John doe x Jane doe & Chance x Azure! I still don't ship both of these ships, but I wouldn't mind if you want to cuddle with me as shipping! (Especially Chance ships except Azure ones, please DNI!)
+I won't mind if you ship characters in Forsaken, but please do not force me to like the ship please! I'm not comfortable with most of Forsaken ships! (Except some canon ones like John Doe x Jane Doe & Chance x Azure)
 
 I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still won't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about Dandy's world when you're not my friend but a stranger, thank you!
 
