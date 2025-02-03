@@ -25,7 +25,7 @@
 
 • Notes: Forsaken / DDE / IHNMAIMS fans are very very welcomed, green name me!
 
-I won't mind if you ship characters in Forsaken, but please do not force me to like the ship please! I'm not comfortable with most of Forsaken ships! (Except some canon ones like John Doe x Jane Doe & Chance x Azure)
+I won't mind if you ship characters in Forsaken, but please do not force me to like the ship please! I'm not comfortable with most of Forsaken ships! (Except canon ones like John Doe x Jane Doe & Chance x Azure)
 
 I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still won't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about Dandy's world when you're not my friend but a stranger, thank you!
 
@@ -33,7 +33,7 @@ I'm not in Dandy's world fandom anymore and I honestly hate everything about Dan
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INT || Basically anyone! / People with the same interest with me!
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis, but if you consider yourself as an OVERLY sensitive & 'touch trigger' people, I recommend not interacting with me!
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis, but will block you permanently if I find you very much uncomfortable or annoying!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
