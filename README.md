@@ -27,7 +27,7 @@
 
 Forsaken ships do not interact unless it's some CANON ships like John doe x Jane doe & Chance x Azure! I still don't ship both of these ships, but I wouldn't mind if you want to cuddle with me as shipping! (Especially Chance ships except Azure ones, please DNI!)
 
-I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still wouldn't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about dandy's world when you're not my friend but a stranger.
+I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still won't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about Dandy's world when you're not my friend but a stranger, thank you!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
