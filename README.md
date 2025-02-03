@@ -11,23 +11,27 @@
 
 • Inspo is okay and you don't need to get permission for it but DO NOT!! copy or get HEAVILY inspo from any of my skin!
 
+• A MINOR. So don't be weird with me!
+
 • From non-English country, might be bad at english sometimes!
 
 • Yeah I don't do roleplay! I don't recommend interacting me for a rp!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Forsaken / Regretevator / Other games from Theaxolotlsun / Dimensional Deep End / Various unpopular games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The walten files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Chiikawa / Neon Genesis Evanglion / Bugbo
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Forsaken / Regretevator / Other games from Theaxolotlsun / Dimensional Deep End / Various unpopular games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The walten files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Chiikawa / Neon Genesis Evanglion / Bugbo / Poppy Playtime
 
 • Notes: Forsaken / DDE / IHNMAIMS fans are very very welcomed, green name me!
 
-I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still don't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about dandy's world when you're not my friend but a stranger.
+Forsaken ships do not interact unless it's some CANON ships like John doe x Jane doe & Chance x Azure! I still don't ship both of these ships, but I wouldn't mind if you want to cuddle with me as shipping! (Especially Chance ships please DNI!)
+
+I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still wouldn't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about dandy's world when you're not my friend but a stranger.
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INT || Basically anyone! / People with the same interest with me!
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis! But will block you permanently if I find you uncomfortable or very much annoying!
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis. But will block you permanently if I find you very much uncomfortable or annoying!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
