@@ -17,6 +17,8 @@
 
 • Yeah I don't do roleplay! I don't recommend interacting me for a rp!
 
+• Will block you permanently if I find you very much uncomfortable or annoying. But I barely blocks someone, so I don't think you have to worry about it!
+
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Forsaken / Regretevator / Other games from Theaxolotlsun / Dimensional Deep End / Various unpopular games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The walten files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Chiikawa / Neon Genesis Evanglion / Bugbo / Poppy Playtime
@@ -30,8 +32,6 @@ I'm not in Dandy's world fandom anymore and I honestly hate everything about Dan
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INT || Basically anyone! / People with the same interest with me!
-
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis. But will block you permanently if I find you very much uncomfortable or annoying!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
