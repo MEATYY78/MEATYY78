@@ -13,7 +13,7 @@
 
 • A MINOR. Don't be weird with me!
 
-• Not an English speaker, might be bad at English sometimes!
+• From non-English country, might be bad at English sometimes!
 
 • Yeah I don't do roleplay! I don't recommend interacting me for a rp!
 
