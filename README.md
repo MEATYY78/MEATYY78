@@ -25,7 +25,7 @@
 
 I'm fine with ships. But do not force me to like your ship(s)!
 
-I'm not in Dandy's world fandom anymore and I honestly hate everything about Dandy's world including the fandom and the game itself now, but I still won't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about Dandy's world when you're not my friend but a stranger, thank you!
+I'm not in Dandy's world fandom anymore and now I honestly hate everything about Dandy's world including the fandom and the game itself, but I still won't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about Dandy's world when you're not my friend but a stranger, thank you!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
