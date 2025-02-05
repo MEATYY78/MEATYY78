@@ -23,7 +23,7 @@
 
 • Notes: Forsaken / DDE / IHNMAIMS fans are very very welcomed, green name me!
 
-I'm fine with ships. But do not force me to like your ship(s)!
+I'm fine with shipping but do not force me to like your ship(s)! 
 
 I'm not in Dandy's world fandom anymore and now I honestly hate everything about Dandy's world including the fandom and the game itself, but I still won't mind interacting with Dandy's world fans unless they're being weird or horrible! Just don't mention about Dandy's world when you're not my friend but a stranger, thank you!
 
