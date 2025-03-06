@@ -29,6 +29,8 @@ I'm fine with shipping but do not force me to like your ship(s)!
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INT || Basically anyone! / People with the same interest with me!
 
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) THIN ICE || Dandy's world fans
+
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) DNI || No dnis, but will block you permanently if I find you very much uncomfortable or annoying!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
@@ -43,5 +45,5 @@ I'm fine with shipping but do not force me to like your ship(s)!
 
 ![PileOfBalls2](https://github.com/user-attachments/assets/fcb39f80-962d-499d-9a9f-0d63863e06ca)
 
-me if you care
+me irl picture
 
