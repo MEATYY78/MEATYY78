@@ -25,7 +25,7 @@
 
 I'm fine with shipping but do not force me to like your ship(s)!
 
-My all roblox admin skins are not from Forsaken nor Trud!
+My all roblox admin & hacker skins are not from Forsaken nor Trud!
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
