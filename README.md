@@ -19,9 +19,9 @@
 
 ![fff](https://github.com/user-attachments/assets/53f98d46-086d-450a-a534-c21e478ef501)
 
-![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Roblox admins / Minus Elevation / Calamity Corporation / Regretevator / Other games from Theaxolotlsun / Dave and Bambi and DnB fan mods / Dimensional Deep End / Various unpopular, underrated games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The Walten Files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Chiikawa / Bugbo / Endacopia / Nekojiru (Cat Soup) / Minecraft / Sanrio
+![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) INTEREST || Roblox admins / Minus Elevation / Calamity Corporation / Regretevator and Reg OCs / Other games from Theaxolotlsun / Dave and Bambi and DnB fan mods / Dimensional Deep End / Various unpopular, underrated games in roblox / IHNMAIMS / TADC / ENA / DHMIS / The Walten Files / Analog horrors / Aesthetics like liminal space, dreamcore, weirdcore, kidcore etc / Chiikawa / Bugbo / Endacopia / Nekojiru (Cat Soup) / Minecraft / Sanrio / Forsaken (Not really interacting with the fandom, but I guess it's worth to put here)
 
-• Notes: Regretevator / DDE / IHNMAIMS fans are very very welcomed, green name me!
+IHNMAIMS / Bugbo / Regretevator fans should green name me right NOW!
 
 I'm fine with shipping but do not force me to like your ship(s)!
 
