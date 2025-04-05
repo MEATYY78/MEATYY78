@@ -5,7 +5,7 @@
 
 ![c216eb0d](https://github.com/user-attachments/assets/470218a1-f8f3-48c7-92a3-61d6ee5322d1) BASIC ||
 
-• Hello I am MEATY and you have no need to introduce yourself. (Get the reference please)
+• Hello I am MEATY and you have no need to introduce yourself. (reference)
 
 • C+H & Whisper 2 interact!
 
